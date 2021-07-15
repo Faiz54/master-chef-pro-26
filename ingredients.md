@@ -1,0 +1,17 @@
+1 pound ground beef
+3/4 pound bulk pork sausage
+3 cans (8 ounces each) tomato sauce
+2 cans (6 ounces each) tomato paste
+2 garlic cloves, minced
+2 teaspoons sugar
+1 teaspoon Italian seasoning
+1/2 to 1 teaspoon salt
+1/4 to 1/2 teaspoon pepper
+3 large eggs
+3 tablespoons minced fresh parsley
+3 cups 4% small-curd cottage cheese
+1 cup ricotta cheese
+1/2 cup grated Parmesan cheese
+9 lasagna noodles, cooked and drained
+6 slices provolone cheese (about 6 ounces)
+3 cups shredded part-skim mozzarella cheese, divided.
